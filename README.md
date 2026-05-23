@@ -1,0 +1,1 @@
+# Analisis-Data-Real-Time-Drilling-Operation-Manajemen-Risiko-Termomekanis-Well-58-32-
